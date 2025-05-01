@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Sicology in Love
 - 💞️ I’m looking to collaborate on friends
 - 📫 How to reach me 
-- 😄 Pronouns: power
+- 😄 Pronouns: dont' know
 - ⚡ Fun fact: If someone wants to hack me, then go ahead, but think about it because later I won't let it go.
 
 <!---
