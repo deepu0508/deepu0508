@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @deepu0508
 - 👀 I’m interested in Love
-- 🌱 I’m currently learning Sicology in Love
+- 🌱 I’m currently learning Psychology in Love
 - 💞️ I’m looking to collaborate on friends
 - 📫 How to reach me 
 - 😄 Pronouns: dont' know
